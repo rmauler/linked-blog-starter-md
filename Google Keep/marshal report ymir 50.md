@@ -1,0 +1,19 @@
+
+Sir Felix, concussion, occurred during a pass in the titan tourney with Iskendar
+I was present and watched the pass in question.  Master Geoffrey was the marshal for the pass.  I also was involved with care for Sir Felix after he came off the field.  I'm writing a timeline of events to the best of my knowledge.
+-Felix fought sword and dagger, Iskendar fought case
+-Sir Felix closed the distance setting aside one of Iskendar's blades and delivered a dagger shot to Iskendar's torso
+-Iskendar brought his free blade up to the side of Felix's mask to set up a draw cut.  This and the previous action happened almost simultaneously.  This was the blow in question that caused the concussion. 
+-At this point the fighting stopped and Iskendar asked if his draw cut was good.  I did not hear any acknowledgement or question about the dagger shot, nor any question other than from the Marshal as to whether Felix was ok after receiving the strike to the side of the head.
+-As Felix moved to leave the field I walked over to meet him as he stepped off the list.
+-He then described the blow as having received a flat snap and asked to get evaluated for a concussion.
+-I sought out Master Brian to perform an initial assessment of Felix's condition.
+-After seeing symptoms related to a concussion (dilated pupils), Brian recommended Felix retire from the list for the rest of the day and seek professional medical evaluation
+-We found Felix's wife, made sure she was familiar with symptoms she needed to look out for and they left the event early.
+-Felix scheduled an appointment to get evaluated on Monday 2/24, where they confirmed the diagnosis
+-He is taking some time off of work and will be skipping gulf wars to recover
+
+
+Iskendar behavioral issues, Fledermaus tip failure
+     I heard of several instances of blatant ignoring of shots on Iskendar's part, but only personally witnessed 2 of them.  As always, I'm not the one in the armor, so I don't know for sure, but sometimes things look obvious enough from the sidelines, that it's hard to imagine them not warranting at least discussion between the combatants.  The first was the dagger shot from Felix during their pass.  It was placed center of mass with no blades even close to intercepting.  I didn't hear any acknowledgement even so much as to decline it if it did fall short.  The other was during the finals of the Titan tourney against Master Brian.  During their first exchange, Brian delivered a thrust to Iskendar's chest that had enough pressure to give a bend to the blade.  Again, this blow was not acknowledged.  While it's not against any rules, most fighters have made it a policy to remove themselves from the field when they injure an opponent enough that they would have to retire from the list due to that injury.  I think that the fact this wasn't done continues to demonstrate a lack of sportsmanship that day.
+    Fledermaus had a tip come off during pickup fights with Els after the Titan tourney.  They were fighting c&t with Fledermaus using a saber and Els a dusack.  It looked as though Els' blade slide up Fledermaus' and took the tip with it.  The tip used by Fledermaus was not one currently approved for use on the list as far as I know.  He showed it to me earlier in the day to get feedback on it.  I know he participates in a lot of HEMA activities, so I didn't expect him to plan on using it at the event that day.  At the time, I recommend he add more tape to it, since it was attached rather loosely.  I believe I also commented that the wide shoulders at the base of the tip would make it susceptible to being knocked off.

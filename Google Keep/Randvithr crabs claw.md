@@ -1,0 +1,2 @@
+
+Too many content themselves with learning just one art of war.  Lord Randvithr is no such person.  Not content with just learning the bow, he has taken to learning how to fight with sword and shield.  Like a true crab he takes to the field with his carapace, his armor and his claw, his sword.  Thus, do we, Baron Linhart and Baroness Letia induct Lord Randvithr into our Order of the Crab's Claw.  Done this 25th of January A.S. LIX at our Midwinter Revel: Lunar New Year.

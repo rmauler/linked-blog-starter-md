@@ -1,0 +1,25 @@
+
+
+- [ ] General cleaning
+- [ ] Countertops
+- [ ] Look at work boots
+- [ ] Trailer repair
+- [ ] Reseal tile bathroom 
+- [ ] Charlotte new license 
+- [ ] Get 3" metal cutoff blades for dewalt
+- [ ] Greenies for Webster 
+- [ ] Get polish back from melchior
+- [X] Post office
+- [X] Mail box
+- [X] Insurance for mailbox and trash
+- [X] Couch insurance
+- [X] New Tires
+- [X] Snacks for Webster
+- [X] Fresh sheets for bed
+- [X] Trash cans
+- [X] Water filter for fridge
+- [X] Buy paper
+- [X] Pair keys
+- [X] Research car charger
+- [X] Pick up stuff from bar harbor auto
+- [X] Buy bed

@@ -1,0 +1,2 @@
+
+It is our right and privilege to induct those we find to be true artisans and stewards of knowledge into our Order of the Eagle's feather.  One such individual is Kade Tatter Skirt.  She graces our fair Barony with such diverse skill in pottery, cordage, spoon making, and illumination among others.  Truly, it takes tremendous skill to spread yourself among so many arts.  Thus, do we, Linhart and Letia, Baron and Baroness of Lochmere, induct her into our Order of the Eagle's Feather done this 6th day of September A.S. 60 at our Battle on the Bay.

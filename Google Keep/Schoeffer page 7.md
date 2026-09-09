@@ -1,0 +1,2 @@
+
+So baldt er unter deiner Klingen durch Caviren wirdt / so habe wohl in achtung auff das tempo in dem er durchgehet / du mit der quarta innerhalb nach seiner rechten Brust zustossest / mit einem zutritt dess rechten fusses / wie du in dieser nachfolgenden Figur mit der ziffer 4. verzeichnet sthest.

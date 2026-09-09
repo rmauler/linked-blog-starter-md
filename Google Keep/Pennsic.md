@@ -1,0 +1,25 @@
+
+
+- [X] Sewing kit
+- [X] Blue tunic
+- [X] Scroll holders / scrolls
+- [X] Letia shoes
+- [X] Drying rack
+- [X] Finial
+- [X] Clean up cat area
+- [X] Teeeths
+- [X] Flashlights 
+- [X] Cords battery chargers
+- [X] Pillows towels
+- [X] Camera
+- [X] Lacing 
+- [X] Ibuprofen
+- [X] Sword rack
+- [X] Baskets
+- [X] Parasol 
+- [X] Straw hats
+- [X] Cooking oil 
+- [X] iPad
+- [X] Scribal stuff
+- [X] Archery stuff
+- [X] Do the dishes

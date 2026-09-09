@@ -1,0 +1,29 @@
+
+
+- [ ] Letia needs to check if she's speaking
+- [X] 3 days
+- [X] Display board(needs glue)
+- [X] Blanket
+- [X] Sheets 
+- [X] pillow
+- [X] ALL the coronets
+- [X] All the collars for Letia
+- [X] Cloak for both
+- [X] Post event clothes
+- [X] Old bay bottles
+- [X] Challenge coin
+- [X] Any other Lochmere things
+- [X] Giant crab?
+- [X] Chairs 
+- [X] Tiny Table
+- [X] Good weather
+- [X] Kade's little buttons
+- [X] Garb
+- [X] Toiletries
+- [X] Scroll
+- [X] Lactaids
+- [X] Mugs
+- [X] Archery?
+- [X] Swords
+- [X] Ibuprofen 
+- [X] Iron spike book

@@ -1,0 +1,2 @@
+
+Like the crab seeking out his new shell, it takes dedication to push through an obstacle and continue to serve your community.  Despite a grievous wound, Maestra(double check) Symone de la Rochelle heeded the call for aid at our Battle on the Bay.  For this we would induct her into our order of the Cloistered Crab.  Done this day September 7th, anno societatis 59 at Battle on the Bay by our hand.  Baron Linhart, Baroness Letia

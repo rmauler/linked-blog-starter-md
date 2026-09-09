@@ -1,0 +1,29 @@
+
+
+- [ ] 3" pipe
+- [ ] Shower valve trim
+- [ ] Shower valve
+- [ ] Shower faucet extension 
+- [ ] Shower head
+- [ ] 1/2" PVC
+- [ ] 3 1/4 turn valves
+- [ ] Vanity faucet
+- [ ] Schlüter board 
+- [ ] 2" pipe?
+- [ ] Drywall
+- [ ] Bring trim to find matching piece?
+- [X] 3" 90 
+- [X] 3" toilet flange
+- [X] Structural screws
+- [X] Shower faucet 90 fitting
+- [X] Toilet flex line for 1/4 turn 8"? 10"?
+- [X] Trap and drain for vanity
+- [X] 2" trap for shower
+- [X] 3x Board mount 90 degree for toilet and vanity
+- [X] Cpvc glue
+- [X] Extra bits for oscillating saw
+- [X] Plumbers putty
+- [X] Double rocker light switch
+- [X] 1/2 PVC hold downs
+- [X] 3" coupler
+- [X] Timer switch

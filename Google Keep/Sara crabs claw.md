@@ -1,0 +1,2 @@
+
+Long have Atlantia's enemies suffered at the end of one of Sarra de Vicenza's swords and many arrows.  Her well placed shots can turn the tides of battle, decimating units in the truest sense of the word.  She has also taken to learning the art of defense to better deal with any who get too close for an arrow or bolt. Therefore, do we, Baron Linhart and Baroness Letia, induct her into our Order of the Crab's Claw. Done this 7th day of September, anno societatis 59 at Battle on the Bay.
