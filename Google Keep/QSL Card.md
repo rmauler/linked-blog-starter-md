@@ -1,3 +1,7 @@
+---
+tags:
+  - radio
+---
 
 info
 size:5.5 x 3.5
