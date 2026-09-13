@@ -26,5 +26,9 @@ Blob - 3 hits in separate places. Reset each time.  Monster doesn't act out woun
 
 The monster can only be killed in a certain field location, maybe just if they step in that part of the field
 
-Challenger has to name their shot before the fight
-Monster fights single
+ Challenger has to name their shot before the fight Monster fights single
+
+Volunteers
+Brian - c&t challenge 
+Talia - blob?
+Kendra - challenger or dice
