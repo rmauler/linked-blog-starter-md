@@ -4,12 +4,16 @@ tags:
   - vacation
 ---
 Botanical garden
-Us space Rocket center - m&e
+US space and Rocket center - m&e
 Lowe mill art center
 Lowe's outlet?
 Gigaparts
 The Deep comics
 Cathedral caverns state park
 Beignets and brew
-
+Pints and pixels
+Rocket city hema
+Signals museum
+Guajana rum
+Campus 805
 
