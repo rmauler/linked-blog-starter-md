@@ -5,7 +5,7 @@ tags:
 ---
 Botanical garden
 US space and Rocket center - m&e
-Lowe mill art center 
+Lowe mill art center - m&e
 Lowe's outlet?
 Gigaparts
 The Deep comics
