@@ -3,7 +3,7 @@ tags:
   - Huntsville
   - vacation
 ---
-Botanical garden
+Botanical garden-m&e
 US space and Rocket center - m&e
 Lowe mill art center - m&e Saturday only
 Lowe's outlet?
