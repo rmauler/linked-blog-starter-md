@@ -5,7 +5,7 @@ tags:
 ---
 Botanical garden
 US space and Rocket center - m&e
-Lowe mill art center - m&e
+Lowe mill art center - m&e Saturday only
 Lowe's outlet?
 Gigaparts
 The Deep comics
@@ -18,4 +18,5 @@ Guajana rum
 Huntsville museum of art
 Campus 805
 Speakeasy in campus 805
+Flying biscuit cafe
 
