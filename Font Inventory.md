@@ -19,3 +19,6 @@ Cloister 18pt x2
 Capt Fabris 14pt
 Neon Hevetic Not ATF 16pt
 Unknown 8pt or 10pt
+Empire
+Cheltenham 
+Coronet
