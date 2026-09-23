@@ -30,8 +30,9 @@ The monster can only be killed in a certain field location, maybe just if they s
 
 Volunteers
 Brian - c&t challenge 
-Talia - blob
-Kendra - challenger or dice
-James rardin
-Caitlin 
-Farthegn
+Kendra - dice
+JG - vampire
+James rardin - hydra
+Caitlin - blob
+Farthegn - challenger
+Shape shifter?
