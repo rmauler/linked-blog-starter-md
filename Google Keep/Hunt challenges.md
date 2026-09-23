@@ -30,5 +30,8 @@ The monster can only be killed in a certain field location, maybe just if they s
 
 Volunteers
 Brian - c&t challenge 
-Talia - blob?
+Talia - blob
 Kendra - challenger or dice
+James rardin
+Caitlin 
+Farthegn
