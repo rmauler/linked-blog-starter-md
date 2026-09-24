@@ -22,7 +22,7 @@ dice determine kill shot - maybe challenger gets hints based on rank?
 
 Hydra - multiple targets in a row? Maybe just hit a limb before body
 
-Blob - 3 hits in separate places. Reset each time.  Monster doesn't act out wounds.  Fighter does.
+Blob/Snail - 3 hits in separate places. Reset each time.  Monster doesn't act out wounds.  Fighter does.
 
 The monster can only be killed in a certain field location, maybe just if they step in that part of the field
 
@@ -34,7 +34,7 @@ Volunteers
 Brian - c&t challenge 
 Kendra - dice
 JG - vampire
-James rardin - hydra
-Caitlin - blob
+James rardin - hydra 
+Caitlin - Snail
 Farthegn - challenger
 Shape shifter?
