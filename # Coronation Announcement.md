@@ -1,1 +1,0 @@
-Greetings fencers of Atlantia IagIi
