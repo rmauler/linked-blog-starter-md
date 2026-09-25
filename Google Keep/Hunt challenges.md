@@ -11,8 +11,10 @@ Headshots only - maybe nix this
 
 Longsword c&t - not sure how to set this up to still be fun for both rapier and c&t. Maybe skip
 
-Maybe sidesword and buckler monster - cuts only
-Draw cuts only for rapier auth - possibly Brian
+For all Beasts: Killing a beast will require you to meet their special conditions.  You will accept blows from the monsters with normal conventions.  
+
+sword and buckler bunny - cuts only!
+Only draw cuts are allowed for rapier authorized fighters.  C&T fighters may use percussive cuts as well.
 
 Shape shifter / black tiger- can move the first shot to somewhere else
 
