@@ -11,14 +11,14 @@ Headshots only - maybe nix this
 
 Longsword c&t - not sure how to set this up to still be fun for both rapier and c&t. Maybe skip
 
-For all Beasts: Killing a beast will require you to meet their special conditions.  You will accept blows from the monsters with normal conventions.  
-
-sword and buckler bunny - cuts only!
-Only draw cuts are allowed for rapier authorized fighters.  C&T fighters may use percussive cuts as well.
-
 Shape shifter / black tiger- can move the first shot to somewhere else
 
-Vampire - heart or draw cut neck / must use cloak
+For all Beasts: Killing a beast will require you to meet their special conditions.  You will accept blows from the monsters with normal conventions.  If the 
+
+Sword and buckler bunny: Cuts only!
+Only draw cuts are allowed for rapier authorized fighters.  C&T fighters may use percussive cuts as well.
+
+Cloaked Dog: Only a thrust to the heart or a draw cut to the neck is lethal.  This monster must use sword and cloak.
 
 dice determine kill shot - maybe challenger gets hints based on rank?
 
