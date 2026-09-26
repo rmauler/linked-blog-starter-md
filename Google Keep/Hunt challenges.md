@@ -22,7 +22,7 @@ Only draw cuts are allowed for rapier authorized fighters.  C&T fighters may use
 
 Cloaked Dog: Only a thrust to the heart or a draw cut to the neck is lethal.  This monster must use sword and cloak.
 
-dice determine kill shot - maybe challenger gets hints based on rank?
+Dice Beast: Before the fight the beast will roll a die to determine their lethal target area.  All other shots landing on them will have no effect.  The fencer doesn't get to know the result of the roll until after the fight.
 
 Hydra: This beast must be defeated by hitting the following targets in order: arms, torso, legs
 
