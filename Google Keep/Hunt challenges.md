@@ -35,8 +35,8 @@ Black Knight - need to get all 4 limbs
 Volunteers
 Brian - c&t challenge 
 Kendra - dice
-JG - vampire
-James rardin - hydra 
-Caitlin - Snail
+JG - Cloaked Dog
+James rardin - Hydra 
+Caitlin - Snailene
 Farthegn - challenger
 Shape shifter?
