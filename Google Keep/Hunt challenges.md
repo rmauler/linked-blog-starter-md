@@ -30,7 +30,7 @@ Hydra: This beast must be defeated by hitting the following targets in order: ar
 
 Snailene: To defeat this beast, you must hit them 3 times in non-consecutive targets.
 
- Challenger: Before the fight, the fencer has to name the target area that will be lethal to the beast.
+ Basket : Before the fight, the fencer has to name the target area that will be lethal to the beast.
  
 
 Volunteers
