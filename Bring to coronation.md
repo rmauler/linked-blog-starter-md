@@ -8,6 +8,6 @@ Bug spray
 
 Awards
 Sunnieva golden elephant for scroll
-Cormacc golden elephant for scr
+Cormacc golden elephant for being a scribe during this past reign
 Björn and yrsa fountain for water bearing
 Maybe other bog folks.  Not sure how many are lochmeri.  Don't remember their kids names, but potentially them too.
