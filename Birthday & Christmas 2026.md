@@ -10,3 +10,7 @@ https://www.basspro.com/p/redhead-ranch-fort-peck-sherpa-lined-denim-jacket
 Lego Hubble Telescope 
 https://www.lego.com/en-us/product/hubble-space-telescope-11382?CMP=AFC-AffiliateUS-oelFIBIMgTk-3011275-1963322-10
 
+2 meter bandpass filter kit (bnc)
+https://n6ara.com/product/tinyfilter-2m/
+
+M
