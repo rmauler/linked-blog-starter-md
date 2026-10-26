@@ -13,4 +13,6 @@ https://www.lego.com/en-us/product/hubble-space-telescope-11382?CMP=AFC-Affiliat
 2 meter bandpass filter kit (bnc)
 https://n6ara.com/product/tinyfilter-2m/
 
-M
+M-vave synth - purple
+https://a.co/d/0eyeaKBr
+
